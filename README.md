@@ -1,1 +1,1 @@
-#### ✨🌌 GALAXIFIED 🌌✨
+#### ✨🌌 A brand new experience 🌌✨
